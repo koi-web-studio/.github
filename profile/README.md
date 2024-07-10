@@ -16,6 +16,6 @@ En Koi Studio, encontramos el equilibrio perfecto entre diseño y desarrollo, co
 ¿Querés que tu marca sea la próxima en destacarse? ¡Contactanos y hagamos algo increíble juntos!
 
 🌐 [Koi Studio](https://koiwebstudio.com/) </br>
-📧 koi.webstudio00@gmail.com
+📧 contact@koiwebstudio.com
 
 #Diseño #MarketingDigital #KoiStudio #Creatividad #Innovación
